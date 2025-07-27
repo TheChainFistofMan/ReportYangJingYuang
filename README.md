@@ -5,9 +5,13 @@ Chaoqun ZHAN Email cqzhan@hkbu.edu.hk
 请大家理性讨论, 不要骚扰他的学校邮箱. 
 
 证据链: 
-1)	根据已经披露的信息, 诬女的硕导是郭汝飞 (请看: 武汉大学硕士学位论文-中印生育行为影响家庭暴力的经济学分析 -杨景媛) 
-2)	巫女本人在参加8th IESR-GLO joint workshop on “Fertility decline and family policies” at Jinan University的时候挂的是浸信会大学的单位. 
+1)	根据已经披露的信息, 诬女的硕导是郭汝飞 (请看: 武汉大学硕士学位论文-中印生育行为影响家庭暴力的经济学分析 -杨景媛)
+   
+2)	巫女本人在参加8th IESR-GLO joint workshop on “Fertility decline and family policies” at Jinan University的时候挂的是浸信会大学的单位.
+
 [![image] ([/Fig1.png](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig1.png))](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig1.png)
+
+
 值得注意的是时间为July 5-11, 2025. 博士入学季是九月, 冷知识: 按理来说在还没正式入学之前, 是不能随便挂名博士的单位发文章/参加会议的.  
 
 而这里挂单位说明她和博导的关系好到博导帮忙搞定了行政手续, 挂了个Research assistance的职位参这个会. 如果只是陶瓷海投程度的关系, 断无可能这么帮她搞. 更何况这个工作她博导根本没有出现在作者名单中.  
