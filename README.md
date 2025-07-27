@@ -18,10 +18,15 @@ Chaoqun ZHAN Email cqzhan@hkbu.edu.hk
 
 所有的信息都指向: 她的博导和她存在其他的社会关系, 而最有可能的社会关系就来自于师门. 
 
-3)	如果我们搜索诬女硕导郭汝飞的合作者名单, 我们会发现有一位曾经也在武汉大学读过硕士, 如今在浸信会大学做副教授的学者, CHAOQUN ZHAN 
+3)	如果我们搜索诬女硕导郭汝飞的合作者名单, 我们会发现有一位曾经也在武汉大学读过硕士, 如今在浸信会大学做副教授的学者, CHAOQUN ZHAN
+
+![image2](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig2.png)
 
 4)	进一步深挖, 我们会发现郭汝飞和占超群合作的这两篇还在修改中的文章, 味道有点重啊? 
- 
+
+![image3](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig3.png)
+
+
 1. 赋权女性：fDl对性别教育不平等的影响
 2. 出口之痛：出口放缓与亲密伴侣暴力
 
@@ -33,7 +38,9 @@ Chaoqun ZHAN Email cqzhan@hkbu.edu.hk
 
 最后, 在调查的过程中还查到了一些其他的东西 – 
 这位辅导诬女, 研究领域为人口经济学的郭汝飞教授, 他的主页上挂着两个拿了国家自然科学基金的项目 https://ems.whu.edu.cn/info/1689/22056.htm
- 
+
+
+![image4](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig4.png)
 
 让这些又拳又殖的虫豸领国家自然基金研究剩余水平, 生育率能好吗?
 对涉及科学基金项目科研不端行为等方面举报的，请在NSFC网站上点击科研不端行为举报系统（https://jdwyh.nsfc.gov.cn/dms/）提交。
