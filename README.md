@@ -9,7 +9,7 @@ Chaoqun ZHAN Email cqzhan@hkbu.edu.hk
    
 2)	巫女本人在参加8th IESR-GLO joint workshop on “Fertility decline and family policies” at Jinan University的时候挂的是浸信会大学的单位.
 
-[![image] ([/Fig1.png](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig1.png))](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig1.png)
+![image1](https://raw.githubusercontent.com/TheChainFistofMan/ReportYangJingYuang/refs/heads/main/Fig1.png)
 
 
 值得注意的是时间为July 5-11, 2025. 博士入学季是九月, 冷知识: 按理来说在还没正式入学之前, 是不能随便挂名博士的单位发文章/参加会议的.  
