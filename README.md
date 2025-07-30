@@ -4,6 +4,9 @@
 Chaoqun ZHAN Email cqzhan@hkbu.edu.hk  
 请大家理性讨论, 不要骚扰他的学校邮箱. 
 
+杨景媛的硕士毕业论文《中印生育行为影响家庭暴力的经济学分析》中存在的问题
+https://github.com/zouzhekang/YJYpaper
+
 证据链: 
 1)	根据已经披露的信息, 诬女的硕导是郭汝飞 (请看: 武汉大学硕士学位论文-中印生育行为影响家庭暴力的经济学分析 -杨景媛)
    
